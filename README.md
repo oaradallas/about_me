@@ -11,6 +11,9 @@
 4. "I fought the world and the world won, but atleast I landed some punches"
 5. "When you focus on what you lack you lose what you have. When you focus on what you have you get what you lack."
 6. "The quality of your life is a direct reflection of the quality of the questions you are asking yourself."
+7. "What do I want?"
+8. ...
+
 
 ## reading list
 
