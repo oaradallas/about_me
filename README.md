@@ -14,6 +14,9 @@
 
 ## reading list
 
+1. *Way of the Superior Man* - David Dieda
+2. *3% Man* - Corey Wayne
+3. ...
 ## my skills
 
 ## accomplishments
