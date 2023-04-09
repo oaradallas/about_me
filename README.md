@@ -20,5 +20,12 @@
 
 ## goals
 
+1. Fly as a passenger on an A380
+2. Master (Read, Write, Recite) 100 French words
+3. Visit 5 new countries (Belgium, Ireland, Scotland (Region - Doesn't count),)
+4. Bake 3 Loafs of Sourdough bread
+5. Run around Bachman Lake 1 time without stopping or walking
+6. ...
+
 ## articles and links
 
